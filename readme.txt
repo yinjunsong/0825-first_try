@@ -7,3 +7,4 @@ dbklkdfsdfsÈö´ó´ó
 keep cool
 keep healthy
 sta y here
+leave me alone
